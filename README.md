@@ -1,5 +1,5 @@
 # Jared Blouse
-Austin, TX  (731) 231-7938  jblouse@linux.com
+Austin, TX  (425) 444-5014  jblouse@linux.com
 
 **SUMMARY**
 
